@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @janhvivarma
+- 👀 I’m interested in data analytics profile& BI.
+-  I’m currently learning Business Data Analytics
+-  I’m looking to collaborate on data analytics an BI projects.
+-  reach me : janhvivarma2000@gmail.com
